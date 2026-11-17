@@ -1,3 +1,12 @@
+
+---
+> Copyright © 2026 TrafkHop Entertainment™
+> All rights reserved.
+---
+>This Project is Source Available, NOT Open Source!
+---
+>This Project is made entirely by humans without any generative artificial inteligence.
+---
 # Glossarchi-History
 > (Glossarßi-Foigsßißdd)
 
